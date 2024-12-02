@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Waqar Hussain (@vvaqarhotmail)
+# 👋 Hi, I’m Waqar Hussain (@vvaqarhussain)
 
 Greetings from **Karachi, Pakistan** – a city where the traffic is wild, but the tech scene is thriving!
 
